@@ -2,7 +2,7 @@
 
 Perkenalkan nama saya **Malik Ashraf**.\
 
-Saya seorang **Web developer** Dicoding
+Saya seorang **Web developer** dan sedang mengikuti learning path **SIB Dicoding**
 
 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/sraf-malik-548504210/)ku ya.
 
